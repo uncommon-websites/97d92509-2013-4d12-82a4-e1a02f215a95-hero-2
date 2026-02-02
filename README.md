@@ -1,0 +1,2 @@
+# 97d92509-2013-4d12-82a4-e1a02f215a95-hero-2
+Hero section variant 2 for 97d92509-2013-4d12-82a4-e1a02f215a95
